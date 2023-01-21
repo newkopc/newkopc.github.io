@@ -1,1 +1,0 @@
-# newkopc.github.io
